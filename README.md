@@ -19,4 +19,4 @@ Name: **Oumar DIALLO**<br/>
 Adresse: Kissosso - C/Matoto<br/>
 Tél: (+224) 629 28 94 75<br/>
 E-mail: oumardiallo42@yahoo.fr<br/>
-<hr/><p align="center">*- <i>OmaDiallo</i> &copy Copyright 2020 -*</p><hr/>
+<hr/><p align="center"> <i>OmaDiallo</i> &copy Copyright 2020 </p><hr/>
